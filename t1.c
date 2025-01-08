@@ -1,8 +1,6 @@
 Rakesh is a good boy 
 happy morning good vening
-good sir 
-red color 
-blue white
-hi sir  didnot do any mistake
-i go ttoutput merge cconflict arises and resolved
-i got output 
+new repository arises and conflict 
+merge not possible and gone so 
+what we have to do sir i am sorry by friend
+haveri gulbarg bangaloe chikkamangalore uttarlkaranataranknuqcjw

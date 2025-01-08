@@ -1,6 +1,10 @@
 Rakesh is a good boy 
-happy morning good vening
-new repository arises and conflict 
-merge not possible and gone so 
-what we have to do sir i am sorry by friend
-haveri gulbarg bangaloe chikkamangalore uttarlkaranataranknuqcjw
+hbgcjkawrycbkwucBWHWHGHK CBWJKWNJWCB L
+NXWBEKWHCJWbcwy bxcyx jhxc2ui
+xnuzwyebxejbfejnmk kcnlqk
+nuiicfrnjqc nlh qrlcm rh
+xuiqcriercfnhhqdfjkcnrh4
+mqqqqqqqqqqqqqqqUCRUQJEC JERNHVUECBNUEl
+hhshsdhcjn klicn griun co  
+NXKRCGNUR3
+HI MAM MERGE CONFLICT RESOLVED AND CORRECT OUT PUT
